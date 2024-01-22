@@ -1,0 +1,1 @@
+# analysis_of_suicide_rate_India
